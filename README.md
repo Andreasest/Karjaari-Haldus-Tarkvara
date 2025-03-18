@@ -1,0 +1,1 @@
+# Karjaari-Haldus-Tarkvara
